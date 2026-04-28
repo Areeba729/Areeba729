@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Areeba729
-- 👀 I’m interested in Website development
+- 👀 I’m interested in Mobile App development
 - 🌱 I’m currently learning BSCS
 - 💞️ I’m looking to collaborate with differnet comapnies
 - 📫 How to reach me through email areebamunir987@gmail.com
