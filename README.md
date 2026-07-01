@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning BSCS
 - 💞️ I’m looking to collaborate with differnet comapnies
 - 📫 How to reach me through email areebamunir987@gmail.com
-- 😄 Pronouns: He/She
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: sense of humar
 
 <!---
